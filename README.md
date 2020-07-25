@@ -1,1 +1,1 @@
-# friendly.github.io
+# friendlywe.github.io
